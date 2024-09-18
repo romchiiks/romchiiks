@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @romchiiks 18 y.o.
-- 📫 How to reach me cvqsrsxl@gmail.com
+
+- 📫 Discord: aspiraxcx
 
 <!---
 romchiiks/romchiiks is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
